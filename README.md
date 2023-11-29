@@ -3,6 +3,8 @@
 
 ![](https://www.commentslive.com/myblinkie/create/done/02/15d3200086be9ebebf859820b768c2be.gif) ![](https://www.commentslive.com/myblinkie/create/done/02/7ec730f448482e322e66d318f6f1edde.gif) ![](https://www.commentslive.com/myblinkie/create/done/02/6dd46086ca33de008a67e6c089d0d878.gif)
 
-stamps by me:
+![](https://www.commentslive.com/myblinkie/create/done/02/63a242c9402feff0c15833a7843304d1.gif)
 
-![](https://files.catbox.moe/kl30uk.png) ![](https://files.catbox.moe/2sto9k.png) ![](https://files.catbox.moe/pppj79.png) ![](https://files.catbox.moe/fgnbak.png) ![](https://files.catbox.moe/qw6u21.png) ![](https://files.catbox.moe/xfxiqu.png)
+![](https://files.catbox.moe/kl30uk.png) ![](https://files.catbox.moe/2sto9k.png) ![](https://files.catbox.moe/pppj79.png) ![](https://files.catbox.moe/fgnbak.png) ![](https://files.catbox.moe/j4v4hz.png) ![]() ![]() ![]() ![]() ![]() ![]()
+
+![](https://files.catbox.moe/qw6u21.png) ![](https://files.catbox.moe/xfxiqu.png)
