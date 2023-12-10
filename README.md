@@ -3,11 +3,9 @@
 
 ![](https://caterpie.crd.co/assets/images/gallery12/9430a074.gif?v=ce36ac9f) 
 
-![](https://www.commentslive.com/myblinkie/create/done/02/63a242c9402feff0c15833a7843304d1.gif) ![](https://www.commentslive.com/myblinkie/create/done/02/15d3200086be9ebebf859820b768c2be.gif)  ![](https://www.commentslive.com/myblinkie/create/done/02/6dd46086ca33de008a67e6c089d0d878.gif) ![](https://files.catbox.moe/9982gw.gif) ![](https://files.catbox.moe/0lilvt.gif)
+![](https://www.commentslive.com/myblinkie/create/done/02/63a242c9402feff0c15833a7843304d1.gif) ![](https://files.catbox.moe/9982gw.gif) ![](https://files.catbox.moe/0lilvt.gif)
 
 ![](https://files.catbox.moe/1zgisn.png) ![](https://files.catbox.moe/8u72ed.png) ![](https://files.catbox.moe/5hmgqr.png) ![](https://files.catbox.moe/qdumdd.png) ![](https://files.catbox.moe/j4v4hz.png) ![](https://files.catbox.moe/vmclg1.png) ![](https://files.catbox.moe/ncai2o.png) ![](https://files.catbox.moe/jjhl56.png) ![]() ![]() ![]() 
-
-![](https://files.catbox.moe/qw6u21.png) ![](https://files.catbox.moe/xfxiqu.png) ![](https://files.catbox.moe/dbxiie.png)  ![](https://files.catbox.moe/ornkd6.png) ![](https://files.catbox.moe/o0ljod.png) ![](https://files.catbox.moe/k7ckhb.png)  ![](https://files.catbox.moe/ig5qxp.png) ![](https://files.catbox.moe/b3sx6x.png) 
 
 ![](https://files.catbox.moe/j07dxy.png) ![](https://files.catbox.moe/j07dxy.png) ![](https://files.catbox.moe/abu9t2.png) = THEO AFTER BLOCKING ME ![](https://files.catbox.moe/u0kcef.gif) ![](https://files.catbox.moe/ucapua.gif)
 
