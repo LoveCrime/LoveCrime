@@ -3,10 +3,6 @@
 
 ![](https://caterpie.crd.co/assets/images/gallery12/9430a074.gif?v=ce36ac9f) 
 
-![](https://www.commentslive.com/myblinkie/create/done/02/63a242c9402feff0c15833a7843304d1.gif) ![](https://files.catbox.moe/9982gw.gif) ![](https://files.catbox.moe/0lilvt.gif)
-
-![](https://files.catbox.moe/1zgisn.png) ![](https://files.catbox.moe/8u72ed.png) ![](https://files.catbox.moe/5hmgqr.png) ![](https://files.catbox.moe/qdumdd.png) ![](https://files.catbox.moe/j4v4hz.png) ![](https://files.catbox.moe/vmclg1.png) ![](https://files.catbox.moe/ncai2o.png) ![](https://files.catbox.moe/jjhl56.png) ![]() ![]() ![]() 
-
 ![](https://files.catbox.moe/j07dxy.png) ![](https://files.catbox.moe/j07dxy.png) ![](https://files.catbox.moe/abu9t2.png) = THEO AFTER BLOCKING ME ![](https://files.catbox.moe/u0kcef.gif) ![](https://files.catbox.moe/ucapua.gif)
 
 ![](https://files.catbox.moe/pjbkkc.png) ![](https://files.catbox.moe/n1rn99.png) ![](https://files.catbox.moe/lyure4.png) ![](https://files.catbox.moe/w6ls3a.png) ![](https://files.catbox.moe/ru8rkd.gif) ![](https://files.catbox.moe/9di3j1.gif)
