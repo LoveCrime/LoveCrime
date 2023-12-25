@@ -20,6 +20,6 @@
 
 ![](https://caterpie.crd.co/assets/images/gallery12/9430a074.gif?v=ce36ac9f) 
 
-![](https://files.catbox.moe/j07dxy.png) ![](https://files.catbox.moe/j07dxy.png) ![](https://files.catbox.moe/abu9t2.png) = THEO AFTER BLOCKING ME ![](https://files.catbox.moe/u0kcef.gif) ![](https://files.catbox.moe/ucapua.gif)
+![](https://files.catbox.moe/j07dxy.png) ![](https://files.catbox.moe/j07dxy.png) ![](https://files.catbox.moe/abu9t2.png) THEO AFTER BLOCKING ME
 
 ![](https://files.catbox.moe/pjbkkc.png) ![](https://files.catbox.moe/n1rn99.png) ![](https://files.catbox.moe/lyure4.png) ![](https://files.catbox.moe/w6ls3a.png) ![](https://files.catbox.moe/ru8rkd.gif) ![](https://files.catbox.moe/9di3j1.gif)
