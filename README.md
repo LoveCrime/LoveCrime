@@ -2,16 +2,14 @@
 ## [alt1](https://github.com/faggore) & [alt2](https://github.com/sourkwit)
 
 <p align="center">
-<img src=https://files.catbox.moe/eipj42.jpg >
+<img src=https://files.catbox.moe/xgmtcz.gif >
 <p align="center">
-<img src=https://gifcity.carrd.co/assets/images/gallery54/418a5bc8.gif?v=7421cb56 >
-<p align="center">
-  <img src=https://gifcity.carrd.co/assets/images/gallery187/c19700c4.gif?v=7421cb56> <img src=https://gifcity.carrd.co/assets/images/gallery20/0d4a13d9.gif?v=7421cb56 > <img src=https://gifcity.carrd.co/assets/images/gallery167/7839c3e5.gif?v=7421cb56 > 
-<img src=https://gifcity.carrd.co/assets/images/gallery20/f8495225.gif?v=7421cb56 > 
+  <img src=https://files.catbox.moe/m91x9k.gif> <img src=https://gifcity.carrd.co/assets/images/gallery16/3761df29.gif?v=7421cb56> <img src=https://gifcity.carrd.co/assets/images/gallery166/7990256b.gif?v=7421cb56 > 
+<img src=https://gifcity.carrd.co/assets/images/gallery16/1ec4543a.gif?v=7421cb56 > 
   <p align="center">
-<img src=https://gifcity.carrd.co/assets/images/gallery20/8d6b592f.gif?v=7421cb56 > <img src=https://gifcity.carrd.co/assets/images/gallery20/9f53c1af.gif?v=7421cb56 > <img src=https://gifcity.carrd.co/assets/images/gallery20/5352a4d9.gif?v=7421cb56 >
+<img src=https://gifcity.carrd.co/assets/images/gallery18/16cb0ff8.png?v=7421cb56 > <img src=https://gifcity.carrd.co/assets/images/gallery18/96ba14ed.gif?v=7421cb56 > <img src=https://gifcity.carrd.co/assets/images/gallery18/21da5c49.gif?v=7421cb56 >
 <p align="center">
-<img src=https://gligar.neocities.org/pip.png> <img src=https://gligar.neocities.org/20p.gif > <img src=https://pix.crd.co/assets/images/gallery14/300ab89d.gif?v=ca70c28c >
+<img src=https://gifcity.carrd.co/assets/images/gallery229/57438f79.png?v=7421cb56> <img src=https://gifcity.carrd.co/assets/images/gallery52/c9f19418.gif?v=7421cb56 > <img src=https://gifcity.carrd.co/assets/images/gallery52/b07bff20.jpg?v=7421cb56 >
 
 ‎ ‎‎ ‎‎ ‎
 ‎ ‎‎ ‎
