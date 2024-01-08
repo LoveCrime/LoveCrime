@@ -2,7 +2,7 @@
 ## [alt1](https://github.com/faggore) & [alt2](https://github.com/sourkwit) - [tierlist](https://rentry.co/github-tierlist)
 
 <p align="center">
-<img src= >
+<img src=https://files.catbox.moe/i4ukh3.gif >
 <p align="center">
   <img src=https://gifcity.carrd.co/assets/images/gallery14/f5d4f615.gif?v=371108e7 > <img src=https://gifcity.carrd.co/assets/images/gallery14/77e19876.gif?v=371108e7 > <img src=https://gifcity.carrd.co/assets/images/gallery14/e72c8840.gif?v=371108e7 > 
 <img src=https://gifcity.carrd.co/assets/images/gallery14/94d8a931.gif?v=371108e7 > 
