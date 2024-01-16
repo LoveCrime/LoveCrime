@@ -1,14 +1,13 @@
 
-## [alt1](https://github.com/faggore) & [alt2](https://github.com/sourkwit) - [tierlist](https://rentry.co/github-tierlist)
+## [alt1](https://github.com/faggore) & [alt2](https://github.com/sourkwit) - [tierlist](https://rentry.co/github-tierlist) + ac [@Asolablue](https://twitter.com/Asolablue) twt .
 
 <p align="center">
-<img src=https://files.catbox.moe/5arqw9.gif>
+<img src=https://files.catbox.moe/tchtlz.jpg>
 <p align="center">
-  <img src=https://gifcity.carrd.co/assets/images/gallery14/f5d4f615.gif?v=371108e7 > <img src=https://gifcity.carrd.co/assets/images/gallery14/77e19876.gif?v=371108e7 > <img src=https://gifcity.carrd.co/assets/images/gallery14/e72c8840.gif?v=371108e7 > 
-<img src=https://gifcity.carrd.co/assets/images/gallery14/94d8a931.gif?v=371108e7 > 
-  <p align="center">
-<img src=https://gifcity.carrd.co/assets/images/gallery23/d6d45d61.gif?v=371108e7 > <img src=https://gifcity.carrd.co/assets/images/gallery23/61864536.gif?v=371108e7 > <img src=https://gifcity.carrd.co/assets/images/gallery23/37a9f40c.png?v=371108e7 >
+  <img src=https://files.catbox.moe/izojdy.gif> <img src=https://files.catbox.moe/5il2k3.gif> <img src=https://files.catbox.moe/7h8ww5.gif> 
 <p align="center">
-<img src=https://files.catbox.moe/jg4lvs.png > <img src=https://gifcity.carrd.co/assets/images/gallery51/a7c2b901.gif?v=371108e7 > <img src=https://gifcity.carrd.co/assets/images/gallery236/f314e390.png?v=371108e7 >
+  <img src=https://blinkies.cafe/b/blinkiesCafe-wa.gif> <img src=https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/384c74fd-b91d-4e8c-9bd5-9939f3ccd990/dd6ti5x-1ff65a0c-aa76-453c-b3a0-7e761c89c7d5.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzM4NGM3NGZkLWI5MWQtNGU4Yy05YmQ1LTk5MzlmM2NjZDk5MFwvZGQ2dGk1eC0xZmY2NWEwYy1hYTc2LTQ1M2MtYjNhMC03ZTc2MWM4OWM3ZDUuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.y4Una8Pht-ttSkj5cSkx9KEQzKd_w_6ArIrYcHC_-kI> <img src= https://blinkies.cafe/b/blinkiesCafe-wa.gif>
+<p align="center">
+<img src=https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/f4b0b83b-48d9-4aca-a44a-315a53f27f07/d9n831b-203bcb80-c0bd-41ac-9c77-25944814adca.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2Y0YjBiODNiLTQ4ZDktNGFjYS1hNDRhLTMxNWE1M2YyN2YwN1wvZDluODMxYi0yMDNiY2I4MC1jMGJkLTQxYWMtOWM3Ny0yNTk0NDgxNGFkY2EucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.oW_4FxySvBjPJViChNcY-AQ-IqkzfKKAX2iT7EG7UWo > <img src=https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/9865a25b-3dcf-4076-ad61-b1e7a6a31980/dac2n2e-3517913b-3b52-4060-be35-172203342ce8.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzk4NjVhMjViLTNkY2YtNDA3Ni1hZDYxLWIxZTdhNmEzMTk4MFwvZGFjMm4yZS0zNTE3OTEzYi0zYjUyLTQwNjAtYmUzNS0xNzIyMDMzNDJjZTguZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.hBKRI57lt5u_qfBsl8rOd4-7aSJFPNGltdJ0-YOKC_Y> <img src=https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/a7a7d829-b3eb-4b85-969a-4f5d92cd3ffa/das3kjn-280b606f-559a-4bdb-9e2e-16a258253e70.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2E3YTdkODI5LWIzZWItNGI4NS05NjlhLTRmNWQ5MmNkM2ZmYVwvZGFzM2tqbi0yODBiNjA2Zi01NTlhLTRiZGItOWUyZS0xNmEyNTgyNTNlNzAucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.yLN_RMrJQA743EcTxfqQf3fIzOJdRw0qiXWtfx2C1G8 >
 ‎ ‎‎ ‎‎ ‎
 ‎ 
