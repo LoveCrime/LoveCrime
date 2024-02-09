@@ -2,7 +2,7 @@
 ## [alt1](https://github.com/faggore) & [alt2](https://github.com/sourkwit) - [tierlist](https://rentry.co/github-tierlist) + ac [@Asolablue](https://twitter.com/Asolablue) twt .
 
 <p align="center">
-<img src=https://files.catbox.moe/tchtlz.jpg>
+<img src=https://files.catbox.moe/92uae4.gif>
 <p align="center">
   <img src=https://files.catbox.moe/izojdy.gif> <img src=https://files.catbox.moe/5il2k3.gif> <img src=https://files.catbox.moe/7h8ww5.gif> 
 <p align="center">
