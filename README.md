@@ -1,6 +1,6 @@
 
 <p align="center">
-<img src=https://files.catbox.moe/41argp.gif>
+<img src=https://cdn.discordapp.com/attachments/1100760404558348410/1205614537126977578/output-onlinegiftools_2.gif?ex=65eb7808&is=65d90308&hm=e1edc62e40f4baa5ea8ae6dcaf5beaf0ec8c7c1bc6f5368750c77ce6b46775d6&>
 <p align="center">
 <img src=https://gifcity.carrd.co/assets/images/gallery14/d8c367c0.gif?v=26dffab5> <img src=https://gifcity.carrd.co/assets/images/gallery23/d2798764.gif?v=26dffab5> <img src=https://gifcity.carrd.co/assets/images/gallery14/94d8a931.gif?v=26dffab5>
 <p align="center">
