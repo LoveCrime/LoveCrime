@@ -7,7 +7,3 @@
 <img src=https://gifcity.carrd.co/assets/images/gallery23/d6d45d61.gif?v=26dffab5> <img src=https://gifcity.carrd.co/assets/images/gallery23/1646719d.gif?v=26dffab5> <img src=https://gifcity.carrd.co/assets/images/gallery23/ec474dc5.gif?v=26dffab5 >
 <p align="center">
 <img src=https://gifcity.carrd.co/assets/images/gallery59/adafe7dc.png?v=26dffab5 > <img src=https://gifcity.carrd.co/assets/images/gallery59/64918deb.gif?v=26dffab5> <img src=https://gifcity.carrd.co/assets/images/gallery59/3e8a7601.png?v=26dffab5>
-
-  
-# someone please buy him for me
-![](https://m.media-amazon.com/images/I/518ewzXkczL._AC_UF894,1000_QL80_.jpg) :3
