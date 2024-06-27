@@ -1,6 +1,6 @@
 <div align="center"> 
 
-  ![](https://komarev.com/ghpvc/?username=LoveCrime&style=flat&color=14743C&base=19274) ![](https://gifcity.carrd.co/assets/images/gallery04/048eb1cd.gif?v=49903ca7)
+  ![](https://komarev.com/ghpvc/?username=LoveCrime&style=flat&color=brightgreen&base=19274) ![](https://gifcity.carrd.co/assets/images/gallery270/4201aaba.gif?v=49903ca7)
 <p align="center">
 <img src=https://gifcity.carrd.co/assets/images/gallery18/33b6e7f8.gif?v=49903ca7> <img src=https://gifcity.carrd.co/assets/images/gallery18/cb0f5b2c.gif?v=49903ca7> <img src=https://gifcity.carrd.co/assets/images/gallery18/9af7c1cf.gif?v=49903ca7>
 <p align="center">
