@@ -1,6 +1,6 @@
 <div align="center"> 
 
-  ![](https://komarev.com/ghpvc/?username=LoveCrime&style=flat&color=54433B&base=19274&label=Visitors!) ![](https://gifcity.carrd.co/assets/images/gallery01/cbeceb71.gif?v=47652796)
+  ![](https://komarev.com/ghpvc/?username=LoveCrime&style=flat&color=54433B&base=19274&label=Victims) ![](https://gifcity.carrd.co/assets/images/gallery01/cbeceb71.gif?v=47652796)
 <div align="center">
  <h5 align="center">
    <img src="https://files.catbox.moe/jtmnqh.png">
