@@ -1,13 +1,14 @@
 <div align="center"> 
 
-  ![](https://komarev.com/ghpvc/?username=LoveCrime&style=flat&color=3575B5&base=19274&label=Visitors!) ![](https://gifcity.carrd.co/assets/images/gallery283/5ca9c9ea.gif?v=52814815)
+  ![](https://komarev.com/ghpvc/?username=LoveCrime&style=flat&color=54433B&base=19274&label=Visitors!) ![](https://gifcity.carrd.co/assets/images/gallery01/cbeceb71.gif?v=47652796)
 <div align="center">
  <h5 align="center">
-   <img src="https://files.catbox.moe/y8kr59.png">
+   <img src="https://files.catbox.moe/jtmnqh.png">
    
    <div align="center">
  <h5 align="center">
-   <img src="https://files.catbox.moe/hepg43.gif">
+   <img src="https://files.catbox.moe/v0vhmq.png">
+   i'm finish this later
 
  <h5 align="center">
    <a href="https://rentry.co/her6es/"><img src="https://files.catbox.moe/375cee.png"></img></a> <a href="https://lovecrime.atabook.org/"><img src="https://files.catbox.moe/ab56kk.png"></img></a> <a href="https://retrospring.net/@lovecrime"><img src="https://files.catbox.moe/3010l7.png"></img></a>
