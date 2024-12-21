@@ -11,7 +11,7 @@
    
 
  <h5 align="center">
-   <a href="https://rentry.co/her6es/"><img src="https://files.catbox.moe/ho2eu9.png"></img></a> <a href="https://lovecrime.atabook.org/"><img src="https://files.catbox.moe/fg6x1f.png"></img></a> <a href="https://letterboxd.com/dearhannibal/"><img src="https://files.catbox.moe/4ogjio.png"></img></a>
+   <a href="https://rentry.co/sylar/"><img src="https://files.catbox.moe/ho2eu9.png"></img></a> <a href="https://lovecrime.atabook.org/"><img src="https://files.catbox.moe/fg6x1f.png"></img></a> <a href="https://letterboxd.com/dearhannibal/"><img src="https://files.catbox.moe/4ogjio.png"></img></a>
 
   <p align="center">
 <img src=https://64.media.tumblr.com/f63cc351f9773a24722c800244df33f2/2b3e000999f32397-c0/s640x960/444a3d25cafc8b8e566256727b2a7c493b7cd104.gifv>
