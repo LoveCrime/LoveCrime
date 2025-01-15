@@ -1,13 +1,13 @@
 <div align="center"> 
 
-  ![](https://komarev.com/ghpvc/?username=LoveCrime&style=flat&color=54433B&base=19274&label=Victims) ![](https://gifcity.carrd.co/assets/images/gallery01/cbeceb71.gif?v=47652796)
+  ![](https://komarev.com/ghpvc/?username=LoveCrime&style=flat&color=54433B&base=19274&label=Views) ![](https://gifcity.carrd.co/assets/images/gallery01/cbeceb71.gif?v=47652796)
 <div align="center">
  <h5 align="center">
-   <img src="https://files.catbox.moe/6w36jc.png">
+   <img src=>
    
    <div align="center">
  <h5 align="center">
-   <img src="https://files.catbox.moe/v0vhmq.png">
+   <img src=>
    
 
  <h5 align="center">
