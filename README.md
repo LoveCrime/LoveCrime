@@ -10,7 +10,7 @@
    <img src=""> remake soon
 
  <h5 align="center">
-   <a href="https://rentry.co/her6es/"><img src="https://files.catbox.moe/375cee.png"></img></a> <a href="https://lovecrime.atabook.org/"><img src="https://files.catbox.moe/ab56kk.png"></img></a> <a href="https://retrospring.net/@lovecrime"><img src="https://files.catbox.moe/3010l7.png"></img></a>
+   <a href="https://rentry.co/sylar/"><img src="https://files.catbox.moe/375cee.png"></img></a> <a href="https://lovecrime.atabook.org/"><img src="https://files.catbox.moe/ab56kk.png"></img></a> <a href="https://retrospring.net/@lovecrime"><img src="https://files.catbox.moe/3010l7.png"></img></a>
 
   <p align="center">
 <img src=https://gifcity.carrd.co/assets/images/gallery44/0a1e352d.gif?v=52814815>
