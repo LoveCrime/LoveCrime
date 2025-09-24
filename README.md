@@ -1,3 +1,3 @@
-![](https://komarev.com/ghpvc/?username=LoveCrime&style=flat&color=303030&base=28137&label=Hi✦) ![]()
+![](https://komarev.com/ghpvc/?username=LoveCrime&style=flat&color=303030&base=28137&label=✦) ![]()
 
 <a href="https://rentry.co/T2">rentry</a>⠀⠀⠀<a href="https://letterboxd.com/dearhannibal/">letterboxd</a>⠀⠀⠀<a href="https://lovecrime.atabook.org">atabook</a>
