@@ -4,4 +4,4 @@
 
 ![](https://files.catbox.moe/l1pwd8.gif)
 
-<a href="https://rentry.co/T2">rentry</a>⠀⠀⠀<a href="https://letterboxd.com/dearhannibal/">letterboxd</a>⠀⠀⠀<a href="https://lovecrime.atabook.org">atabook</a>⠀
+<a href="https://rentry.co/T2">rentry</a>⠀⠀⠀<a href="https://murderbot.straw.page">my interests</a>⠀⠀⠀<a href="https://letterboxd.com/dearhannibal/">letterboxd</a>⠀⠀⠀<a href="https://lovecrime.atabook.org">atabook</a>⠀
