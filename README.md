@@ -17,3 +17,5 @@ movie: Trainspotting, Filth, Infinity Pool
 music: KMFDM, Massive Attack, Goreshit
 
 book: The Murderbot Diaries, Six of Crows, Marvel comics generally
+
+moot up if you know peak
